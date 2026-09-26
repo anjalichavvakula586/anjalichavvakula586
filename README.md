@@ -80,10 +80,11 @@ https://anjalichavvakula586.github.io/my_portfolio/
 https://github.com/anjalichavvakula586
 
 💼 **LinkedIn:**
-Add your LinkedIn profile here
+https://www.linkedin.com/in/chavvakula-anjali-536aa32a9/
+
 
 📧 **Email:**
-Add your professional email here
+anjalichavvakula5@gmail.com
 
 ---
 
